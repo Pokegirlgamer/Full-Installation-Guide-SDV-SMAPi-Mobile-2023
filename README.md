@@ -1,5 +1,5 @@
 # ♾️Introduction
-Howdy! still struggling there? don't you worry, Here's a **Quick tutorial** and **Brief Explanation** for you to know on ***how you can install mods on your mobile*** without the unnecessary apps that could occupy your storage... **Pokegirl Gamer** made this for you. It would be absolutely fantastic if you would join my **[Discord Server](https://discord.gg/vWBmceEkMk)**
+Howdy! still struggling there? don't you worry, Here's a **Quick tutorial** and **Brief Explanation** for you to know on ***how you can install mods on your mobile*** without the unnecessary apps that could occupy your storage... **Pokegirl Gamer** made this for you. It would be absolutely fantastic if you would consider joining my **[Discord Server](https://discord.gg/vWBmceEkMk)**
 
 ![](https://media.discordapp.net/attachments/1116005508537659444/1116078647221157928/1686143780696.png)
 
